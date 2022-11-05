@@ -1,1 +1,0 @@
-# Hurto_a_Personas_Colombia_2022
